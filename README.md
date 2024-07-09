@@ -1,3 +1,4 @@
-### [![MasterHead](https://i.redd.it/clean-and-minimalistic-vagabond-banner-for-discord-and-v0-48g7ci8ondia1.jpg?s=3da2b0853c71197ecf60aed4d1c68d695d52dc47)](https://github.com/c00b3r)
+### [![MasterHead]![df0f050c31ecaad9c40d8ad3b1cb00cc](https://github.com/c00b3r/c00b3r/assets/76480196/b6e14d0e-f878-4f7b-8bc4-f7b01061d412)](https://github.com/c00b3r)
 
 #
+
